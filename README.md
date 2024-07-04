@@ -1,2 +1,2 @@
 # mehmetozgul.dev
-hello@mehmetozgul.dev
+✉️ mehmetozguldev@gmail.com
